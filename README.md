@@ -1,1 +1,0 @@
-# easypayy.github.io
